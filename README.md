@@ -8,7 +8,7 @@ Team Leader : Jeniba Prince J P
 
 Team member : Bebisha P L
 
-Team member : ANO Rejith
+Team member : Anto Rejith
 
 Team member : Joney M
 
